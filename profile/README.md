@@ -15,7 +15,7 @@ Our commitment is to optimise workflows, foster sustainable growth and ensure ev
 
 Become the world‑leading provider of integrated commercial advisory and technological solutions, recognised for empowering businesses to realise their full potential and lead within their industries.
 
-[More details →](https://docs.google.com/presentation/d/1kyVZlQJYFzMSOOK7TKZ8JpahGAzl_DvnEO4DoIHHnxo/edit#slide=id.g326205ccccc_6_14)
+[Learn more about Cleverly →](https://docs.google.com/presentation/d/1kyVZlQJYFzMSOOK7TKZ8JpahGAzl_DvnEO4DoIHHnxo/edit#slide=id.g326205ccccc_6_14)
 
 ---
 
@@ -35,7 +35,7 @@ Provide a modular ERP that evolves with our clients, continuously innovating (in
 
 Be the global benchmark for ease of use, flexibility and technological innovation in ERP systems, transforming how organisations manage and scale their operations.
 
-[Learn more about Cleverly →](https://docs.google.com/presentation/d/15axuz1i3HrB7RS7WG8R2Sojw0-N7QooeobwVtfGcihM/edit#slide=id.g321724c600d_0_35)
+[Learn more about Budgeo App →](https://docs.google.com/presentation/d/15axuz1i3HrB7RS7WG8R2Sojw0-N7QooeobwVtfGcihM/edit#slide=id.g321724c600d_0_35)
 
 
 ---
